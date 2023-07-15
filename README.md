@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sarangik909@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19qEzkC1gshPGK7t5VX_IjMakGvnsXKnV/view?usp=drive_link](https://drive.google.com/file/d/19qEzkC1gshPGK7t5VX_IjMakGvnsXKnV/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1jTTUZu9U7hwmje1Mmir4gTxdCFgz-sLx/view?usp=drive_link](https://drive.google.com/file/d/1jTTUZu9U7hwmje1Mmir4gTxdCFgz-sLx/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
